@@ -1,0 +1,1 @@
+# unblocked-auto-clicker
